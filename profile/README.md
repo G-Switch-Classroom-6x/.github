@@ -2,6 +2,8 @@
 
 Looking for an **epic, fast-paced runner game** that will twist your brain and test your reflexes? **G-Switch Unblocked** is the **legendary gravity runner** that lets you flip between floors and ceilings at **lightning speed**. Whether you're at school, work, or chilling at home, this **unblocked arcade game** is your perfect escape!
 
+## <a href="https://1kb.link/oF48EP">👉 Click To Play G-Switch Unblocked Games 👈</a>
+
 ### 🎮 What Is G-Switch Unblocked?
 
 **G-Switch** is an **insane gravity-based platformer** where you control a futuristic runner sprinting through a sci-fi world. But here’s the twist: with just one button, you can **switch gravity** mid-run to dodge obstacles, leap across deadly gaps, and **survive impossible traps**. This version is **unblocked**, so you can play it anytime, anywhere—no limits!
